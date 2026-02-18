@@ -1,4 +1,4 @@
-# kessoku band – 星座になれたら
+# kessoku band – 星座になれたら - If I could be a constellation
 
 > **歌詞登録ステータス：同期歌詞あり**
 
